@@ -1,1 +1,12 @@
 # bookMash
+Writes an output document in the style of an input document.
+
+Here is an output resulting from inputting the US Constitution:
+
+Clause 1: The Senators and Water; Clause 4: When sitting for the Executive (when the several States shall not exceed one Vote; A Person shall meet in the Senate, by which it shall have such Laws on the Certificates, and of them by any Claims of the Acceptance of the Congress may be formed by the Seventeenth Day of Impeachment. Section. 8. Clause 3: The judicial Power to do Business; but the Vice President, the next Meeting of the Laws on the Erection of the Application of Impeachment. Clause 3: The actual Service for that Office or in Proportion to the Vice President alone, in Consequence of Members from Office, he shall then act accordingly, until the United States, or being disapproved by their Speaker and Equity, arising under this Constitution for raising Revenue shall return it, but gold and Inventors the one third Class at large on the Congress into any State having Jurisdiction of the People of this Constitution, shall be taken. (See Note 4)
+
+Here is an output resulting from inputting the King James Bible:
+
+His discharge in pieces, and I shall sleep on the temple that I pray thee, feign herself with the son of this present with his greatness, and with needlework. 
+26:37 And Sarai said unto the man that I command thou persecutest. 26:16 And the churches which were shorter: for a little of them up again. 11:8 And it on the Korhites was done. 21:34 The sceptre of fire not my brother, who subvert whole day. 20:27 And the midst of jubile: and they have appointed them. 
+20:1 When she said unto him, and as they sent unto them well Lahairoi. 25:12 And the son of the tables were the work therein: for he went down, and encamped against the wall, that smote us: 13:3 Surely a wise in his host said unto him, What is in a gold is an house of woollen; whether ye shall be: and great hail ceased, and Bethtappuah, and the seed unto Jerusalem; and Binnui, Kadmiel, with holding the sins be it ought against the causes of unleavened bread, and behold their service of silver, which was published throughout all things unto the people in the country from the LORD. 2:13 And when he hath taken him, and Aaron, Thou hast given unto Jeremiah of them their gods; so will build an altar, and all they tied them that there is health. 12:19 Again, they that he shall the waters upon thee from the land of mine equal, and smote him not done unto thee a woman with Ahab.
